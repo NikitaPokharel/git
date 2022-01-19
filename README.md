@@ -12,7 +12,7 @@
     
 3. Rub the salmon vigorously with butter.
 
-   By "vigerous", we mean a strictly vertical motion. Julia Child once quipped:
+   By "vigorous", we mean a strictly vertical motion. Julia Child once quipped:
     
    > Up and down and all around, that's how butter on salmon goes.
    
